@@ -2,4 +2,3 @@
 - 👀 Minecraft's the best. Technoblade neva dies!
 - 🌱 Aspiring Java Modder/Dev
 - 📫 youtube.com/SonicarMC
-- I'd appreciate if you don't copy anything I make without atleast crediting me.
